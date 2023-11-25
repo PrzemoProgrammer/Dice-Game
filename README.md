@@ -6,4 +6,4 @@
 
 𝐕𝐢𝐝𝐞𝐨
 
- [![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/SqCq1UCI-uo/0.jpg)](https://www.youtube.com/watch?v=SqCq1UCI-uo)
+ [![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/i-YYQrcjjUo/0.jpg)](https://www.youtube.com/watch?v=i-YYQrcjjUo)
